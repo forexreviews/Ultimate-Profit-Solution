@@ -1,4 +1,4 @@
-# Ultimate-Profit-Solution
+# Ultimate Profit Solution
 Ultimate Profit Solution is a new Forex Trading System from Toshko Raychev. This is a new forex trading method based on the experience of Toshko, who spends quite a good time in front charts and finance news. He has sucessfully launched other systems in the past and this is a new one based on proven scientific principles.
 
 The main features of the system includes:
@@ -12,5 +12,14 @@ The main features of the system includes:
 * Frequent webinar.
 * Support and updates.
 
-You can learn more about the Ultimate Profit Solution [on this website](ultimateprofitsolution.co).
+
+![N|Solid](https://ultimateprofitsolution.files.wordpress.com/2017/02/ups_collage.png?w=739)
+
+
+You can learn more about the Ultimate Profit Solution [on this website](https://ultimateprofitsolution.co).
+
+
+
+## Ultimate Profit Solution Pricing and Discount
+The actual price of the system on the homepage is $997 + VAT/TAX/Shipping Charge (as applicable). But you can get the system for $750 in the website mentioned above.
 
